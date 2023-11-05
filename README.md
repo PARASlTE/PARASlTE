@@ -2,7 +2,7 @@
 
 >preferably use whisper to int w me
 
-i only sit friends
+i only sit with friends
 
 anyone below 16 dni excluding crowns or compliments 
 
