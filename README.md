@@ -1,7 +1,7 @@
-Whisper to int
+<p align="center"> offtab + afk alot so, use whisper
 
-Afk/offtab alot so whisper is the best way to get a respond
+<p align="center"> i sleep in pt alot so i might not able to answer ur whisper. leave msg in rs instead ^_^
 
-Feel free to sit with me if Im being unaccompanied
+<p align="center"> feel free to sit with me if i'm being unaccompanied 
 
-
+<p align="center"> i dont bite so pls int 
