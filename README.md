@@ -1,5 +1,12 @@
-<p align="center"> offtab + afk alot so, use whisper
 
-<p align="center"> feel free to sit with me if i'm being unaccompanied 
 
+
+</h1>
+
+
+
+<p align="center"><img src="https://files.catbox.moe/nztp3s.png" ">
+
+
+ 
 
